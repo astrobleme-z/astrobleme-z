@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...science,literature, art and anything tech.
 - 🌱 I’m currently learning ...web, app and software development
 - 💞️ I’m looking to collaborate on ...anything that would allow me to learn as a beginner developer
-- 📫 Contact me via email khwezielihle28@gmail.com
+- 📫 Contact me via email zulukhwezielihle@gmail.com
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...fast, ambitious learner.
 
